@@ -1,4 +1,4 @@
-New apps and games development studio.
+New apps and games development studio
 
 Established in 2023 (copyright)
 
